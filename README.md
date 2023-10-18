@@ -1,0 +1,1 @@
+Narazie plik jedynie konfiguracyjny, pewnie wrzucę zadania później :)
