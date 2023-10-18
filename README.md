@@ -1,1 +1,1 @@
-Narazie plik jedynie konfiguracyjny, pewnie wrzucę zadania później :)
+Narazie plik jedynie konfiguracyjny, pewnie wrzucę zadania później :) sad
